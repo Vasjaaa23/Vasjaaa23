@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Vasjaaa23
 - 👀 I’m interested in Computer Science 
-- 🌱 I’m currently learning Adobe Programs
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: ---
 
