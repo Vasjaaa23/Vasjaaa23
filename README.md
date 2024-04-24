@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vasjaaa23
-- 👀 I’m interested in Computer Science 
+- 👀 I’m interested in Computer Science / Sport, ideally combining both things.
 - 👨🏻‍💻 QA 
 
 <!---
